@@ -19,3 +19,14 @@ For the students of elementary school at Taiwan to learn on-line due to covid-19
 
 - [彭湘平/開喜繪本世界](https://www.facebook.com/cathystoryworld/videos/?ref=page_internal) 
 
+
+## 運動
+
+- [Level Up! (Video Game Workout For Kids)](https://www.youtube.com/watch?v=DO-R5EfG_N4)
+
+- [The Robot Dance | Free Dance Class | 6 - 7 years](https://youtu.be/B-ulfVFtFBs)
+
+- [波波星球泡泡哥哥BoboPopo](https://www.youtube.com/c/%E6%B3%A2%E6%B3%A2%E6%98%9F%E7%90%83)
+
+- [Baby Shark Workout](https://www.youtube.com/watch?v=eNuZN3GSm8U)
+
